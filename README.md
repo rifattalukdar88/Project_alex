@@ -1,2 +1,1 @@
-# Project_alex
-Alex Great repository names are short and memorable. Need inspiration? How about ideal-journey?
+https://rifattalukdar88.github.io/Project_alex/
